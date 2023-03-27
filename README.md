@@ -1,6 +1,6 @@
 # ![](https://drive.google.com/uc?id=10INx5_pkhMcYRdx_OO4rXNXxcsvPtBYq) 其他
 
-> ##### 隨便寫寫，請隨便看看...
+> ##### 隨便寫寫，隨便看看就好...
 
 <br>
 
