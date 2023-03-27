@@ -4,5 +4,4 @@
 
 <br>
 
-## 網路應用：
 * [再會了，曾經的良師，良葛格](https://github.com/RC-Dev-Tech/r-i-p-justin) <br>
